@@ -1,0 +1,2 @@
+# yuancoin
+Combater o comunismo
